@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cavefungi 👋
-I love microbes, especially fungi (Ascomycete)! I am a geek of Microbiology, Molecular Biology, and Genomics with PhD.  
+I love microbes, especially fungi (Ascomycete)! I am a geek of Microbiology, Molecular Biology, and Genomics with PhD in the lab, At home, I am dedicated mama for lovely girls.  
 - 👀 I’m interested in ...brewing at home! I love brewing Umeshu (Japanese plum sake) and Limonchello (Italian lemon liquor). I am looking for new microbe strains for cheese fermentation!
 - 🌱 I’m currently learning ...better alignment idea for genome data analysis. Learning... Learning...Learning...
 - 📫 How to reach me ... email: sacampen@uwalumni.com
